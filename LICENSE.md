@@ -1,4 +1,4 @@
-#  
+#  Experience ink game like never before with vip Script for ink game, the #1 Script. Includes auto-upgrade and silent aim for unbeatable performance.
 
 
 
